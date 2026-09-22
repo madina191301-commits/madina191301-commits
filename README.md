@@ -1,2 +1,2 @@
 сигма гурллл💅🏻
-<img width="735" height="681" alt="scubaaa nick wildeee" src="https://github.com/user-attachments/assets/cfad23e8-f0c4-4e6f-8f2f-adb5a464d4be" />
+<img width="736" height="414" alt="Без названия (1)" src="https://github.com/user-attachments/assets/30c576fe-b2b4-462a-b0fc-c932bf34ec7f" />
